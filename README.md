@@ -2,8 +2,11 @@
 Hey, I'm Cam I Make mods of games and may even make my own one day
 
 Christian✝️
+
 Male He/Him
+
 MINOR
+
 likes kirby and object shows
 
 
